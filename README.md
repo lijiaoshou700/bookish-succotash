@@ -1,1 +1,1 @@
-# bookish-succotash
+我是一名神经科医生，主攻神经免疫，可以提供专业数据资源协助AI诊断# bookish-succotash
